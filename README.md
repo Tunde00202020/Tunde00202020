@@ -122,4 +122,4 @@
 ## 📫 Contact
 
 - **GitHub:** [github.com/Tunde00202020](https://github.com/Tunde00202020)
-- **LinkedIn:** *(add your LinkedIn URL here)*
+- email: Tundeusfati@gmail.com
